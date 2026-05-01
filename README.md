@@ -8,6 +8,11 @@ CT Project video link:[watch video here](https://drive.google.com/file/d/1PNeR6l
 
 
 
+
+CT Project report[Click here](https://docs.google.com/document/d/1sYU74QB3ya2SoFmAWZH8VazJrjOjVr-j/edit?usp=sharing&ouid=109952473996901535518&rtpof=true&sd=true)
+
+
+
 Nascom Certificate:[Click here](https://drive.google.com/file/d/1gLlyvk9CEIfsQSMRhTQuZNJBgLClcjUG/view?usp=drivesdk)
 
 
