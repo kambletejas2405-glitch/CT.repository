@@ -9,3 +9,7 @@ CT Project video link:[watch video here](https://drive.google.com/file/d/1PNeR6l
 
 
 Nascom Certificate:[Click here](https://drive.google.com/file/d/1gLlyvk9CEIfsQSMRhTQuZNJBgLClcjUG/view?usp=drivesdk)
+
+
+
+Anthropic Certificates:[Click here](https://drive.google.com/file/d/1cdc0n64FwUWYqxOgi31VctuApmF4weu7/view?usp=sharing)
