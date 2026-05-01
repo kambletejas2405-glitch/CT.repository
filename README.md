@@ -17,3 +17,8 @@ Anthropic Certificates:[Click here](https://drive.google.com/file/d/1cdc0n64FwUW
 
 
 UNO SDG goals:[click here](https://drive.google.com/file/d/1r4mGx7A4P8G-QN8-Jmr4UzaTribFehUq/view?usp=sharing)
+
+
+
+
+Lab Activity:[Click here](https://drive.google.com/file/d/1-4qZk7oyOBglS4U3X0FffwH-RcPi8jLd/view?usp=sharing)
