@@ -13,3 +13,7 @@ Nascom Certificate:[Click here](https://drive.google.com/file/d/1gLlyvk9CEIfsQSM
 
 
 Anthropic Certificates:[Click here](https://drive.google.com/file/d/1cdc0n64FwUWYqxOgi31VctuApmF4weu7/view?usp=sharing)
+
+
+
+UNO SDG goals:[click here](https://drive.google.com/file/d/1r4mGx7A4P8G-QN8-Jmr4UzaTribFehUq/view?usp=sharing)
