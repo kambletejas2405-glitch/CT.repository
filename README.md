@@ -13,6 +13,10 @@ CT Project report[Click here](https://docs.google.com/document/d/1sYU74QB3ya2SoF
 
 
 
+CT Project ppt[Click here](https://docs.google.com/presentation/d/10nEHFefgZ3F24TlSfz8Jz3TaTxY0cX5k/edit?usp=sharing&ouid=109952473996901535518&rtpof=true&sd=true)
+
+
+
 Nascom Certificate:[Click here](https://drive.google.com/file/d/1gLlyvk9CEIfsQSMRhTQuZNJBgLClcjUG/view?usp=drivesdk)
 
 
